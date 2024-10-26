@@ -2,7 +2,7 @@
 
 
 - 👩🏻‍💻 I'm currently work at a street snack bar
-- 📖 I’m currently learning Information Technology Management at Universidade São Francisco de Assis
+- 📖 I’m learning Information Technology Management at Universidade São Francisco de Assis
 - 🌱 Pronouns: She/Her
 
 <div style="display: inline_block"><br>
